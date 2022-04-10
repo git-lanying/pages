@@ -1,2 +1,2 @@
-# ritian.GitHub.io
+# Pages
 Rtian Page
